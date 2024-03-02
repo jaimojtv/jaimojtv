@@ -1,0 +1,8 @@
+- 👋 Hi, I’m @jaimojtv
+- 😄I'm just getting started
+- I'm counting on your advice
+- - 👀 I’m interested in website, php, java and andrid studio
+- 🌱 I’s a new beggining for humankind
+- 💞️ We wrte history
+- 📫 You can reach me: jaimojtv@gmail.com
+- ⚡ Fun fact:  I have been working in IT for 5 years and I just registered on github :D
